@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vr-K
+- 👋 Hi, I’m Veera
 - 👀 I’m interested in a lot of stuff, but currently trying to get a hang of school again.
 - 🌱 I’m currently learning coding in general. Hope the coding dragon doesn't eat me.
 - 💞️ I’m looking to collaborate on school related stuff for now. Maybe something more spicy later ;)
