@@ -7,7 +7,7 @@
 - 📫 Hit me up on Discord. My **secret** Discord.
 - 😄 Pronouns: Any/All
 - ⚡ Fun fact: Help I am being carried by a giant eagle to it's nest to be consumed fully by it's young. Finally, a purpose for my ailing meat mecha <3
-- ![This but replace graphic design with coding](https://uploads.dailydot.com/2024/07/graphic-design-is-my-passion-3.jpg?q=65&auto=format&w=1600)
+- ![This but replace graphic design with coding](https://uploads.dailydot.com/2024/07/graphic-design-is-my-passion-3.jpg?q=65&auto=format&w=1600 =250x250)
 - Anyway, we can't be friends unless you agree on the following link ![!IMPORTANTATE!](https://www.hankikoira.fi/koirarodut/cairnterrieri)
 
 <!---
