@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning coding in general. I can read very basic code, but heckity ding dang, I can't write any to save a life.
 - 💞️ I’m looking to collaborate on school related stuff for now. Maybe something more spicy later ;)
 -   ~~For real though, I am here because of video games. I am sorry~~
-- 📫 Hit me up on Discord. My **secret** Discord.
+- 📫 Hit me up on Discord. My **secret** Discord. Secret friends will know it already 👍
 - 😄 Pronouns: Any/All
 - ⚡ Fun fact: Help I am being carried by a giant eagle to it's nest to be consumed fully by it's young. Finally, a purpose for my ailing meat mecha <3
 - <img src="https://uploads.dailydot.com/2024/07/graphic-design-is-my-passion-3.jpg?q=65&auto=format&w=1600" width="300" height="250">
